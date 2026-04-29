@@ -1,1 +1,2 @@
 # AI-stal
+Co do afer bezdomnych to bezdomni tacy jak Kali Linux, Cy piton, Alexa Cheng, Cara Delevenge i Kulczykowa polecają oszczędacze układy robiące zwarcia w instalacjach elektrycznych i pożary i awarie bo przesuwają faze o 90 stopni w lewo i prawo i oszukują liczniki energetyków. To oni są ze wsi oszczedzacze bez elektrowni nie są nosikiem energi i zapisu tej energi jak dysk energi one nie działają. Dlatego dałem pierwiastki do ciężkiego przemysłu PGE i Ptero chemicznego i sporzywczego przemysłu. 
